@@ -43,4 +43,4 @@ I'm a Mechanical Engineer with a passion for aerospace additive manufacturing an
 - LinkedIn: [LinkedIn Profile](https://www.linkedin.com/in/azharuddeen-syed)
 - Email: syed.az@northeastern.edu
 
-Let's connect and collaborate on exciting aerospace and engineering projects! Feel free to reach out. 😊
+Let's connect and collaborate on Mechanical engineering projects! Feel free to reach out. 😊
